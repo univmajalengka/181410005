@@ -1,2 +1,6 @@
 # 181410005
-Salahuddin nurul fahmi
+Nama : Salahuddin nurul fahmi
+
+Email: Salahuddinnurulfahmi31@gmail.com
+
+No   : 085603266100
